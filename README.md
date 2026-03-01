@@ -1,2 +1,2 @@
-https://walex05.gifthub.io/index.html
+https://walex05.github.io/index.html
 Walex Screeding and Painting Co. website
